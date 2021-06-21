@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nina-Simone
 - 👀 I’m interested in gymnastics, writing, piano, dance, and skateboarding
 - 🌱 I’m currently learning beginner french, advanced ELA, and cooking 
-- 💞️ I’m looking to collaborate on anything; Marvel, Tik Tok, Youtube, RPG gaming, basically anything
+- 💞️ I’m looking to collaborate on anything; Marvel, Tik Tok, Youtube, RPG, basically anything
 - 📫 How to reach me: Slack or Zoom private chat
 
 <!---
